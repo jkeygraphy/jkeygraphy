@@ -30,6 +30,7 @@ Fandoms 𖾕𖾝꙼ᩚ𛲕𖾟
 <𝟑 .ᐟ Bl series
 <𝟑 .ᐟ Epic / Hamilton
 <𝟑 .ᐟ TFC , error143
+<𝟑 .ᐟ  The summer Hikaru Died
 and many others
 
 Music !!
