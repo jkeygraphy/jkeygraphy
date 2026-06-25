@@ -6,6 +6,7 @@
 ㅤㅤㅤ(𝘿𝙚𝙨𝙞𝙜𝙣 𝙨𝙩𝙪𝙙𝙚𝙣𝙩 𝙖𝙣𝙙 𝙖𝙨𝙥𝙞𝙧𝙞𝙣𝙜 𝙞𝙡𝙡𝙪𝙨𝙩𝙧𝙖𝙩𝙤𝙧 𝙖𝙣𝙙 𝙖𝙣𝙞𝙢𝙖𝙩𝙤𝙧)
 ⭑.ᐟ C+H !! You are free to interact; at first I am quite shy but I gain confidence depending on your comfort. !!
 
+![image alt](https://github.com/jkeygraphy/jkeygraphy/blob/4a3e4060f3e29281cbdb1475dc234724a3b813ad/ivan-alien-stage-ivan.gif)
 
 Likes !!: 
 ⭑.ᐟ TV series, movies (of all genres)
