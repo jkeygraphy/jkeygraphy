@@ -1,16 +1,42 @@
-## Hi there 👋
+![image alt](https://github.com/jkeygraphy/Know-me/blob/5b707f9530199ff451f59a0d6df180b632a6a9cc/ivantill.jpg)
 
-<!--
-**jkeygraphy/jkeygraphy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# jkeygraphy >⩊<
+ㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+ㅤㅤㅤㅤㅤㅤㅤHi! my name is jake (21 yrs old) ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤ(𝘿𝙚𝙨𝙞𝙜𝙣 𝙨𝙩𝙪𝙙𝙚𝙣𝙩 𝙖𝙣𝙙 𝙖𝙨𝙥𝙞𝙧𝙞𝙣𝙜 𝙞𝙡𝙡𝙪𝙨𝙩𝙧𝙖𝙩𝙤𝙧 𝙖𝙣𝙙 𝙖𝙣𝙞𝙢𝙖𝙩𝙤𝙧)
+⭑.ᐟ C+H !! You are free to interact; at first I am quite shy but I gain confidence depending on your comfort. !!
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Likes !!: 
+⭑.ᐟ TV series, movies (of all genres)
+⭑.ᐟMusicals, drawing, dancing, and listening to music
+⭑.ᐟStuffed animals, both small and large, as well as hair clips!
+
+Dislikes !!:
+⭑.ᐟTransphobic or homophobic people
+⭑.ᐟOvercrowded, cramped spaces
+⭑.ᐟPhysical contact without asking first
+⭑.ᐟInappropriate arguments or jokes
+
+
+
+Fandoms 𖾕𖾝꙼ᩚ𛲕𖾟
+<𝟑 .ᐟ VNC
+<𝟑 .ᐟ Alien stage
+<𝟑 .ᐟ KNY
+<𝟑 .ᐟ Backrooms
+<𝟑 .ᐟ Honkai / Genshin
+<𝟑 .ᐟ Bl series
+<𝟑 .ᐟ Epic / Hamilton
+<𝟑 .ᐟ TFC , error143
+and many others
+
+Music !!
+.✦ ݁˖ Enhypen
+.✦ ݁˖ CORTIS
+.✦ ݁˖ Chase atlantic
+.✦ ݁˖ BTS
+.✦ ݁˖ Pretty Havoc
+.✦ ݁˖ Voilá
+.✦ ݁˖ MICO
+.✦ ݁˖ Ducht Melrose
