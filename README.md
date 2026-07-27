@@ -2,7 +2,7 @@
 
 # jkeygraphy >⩊<
 ㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-ㅤㅤㅤㅤㅤㅤㅤHi! my name is jake (21 yrs old) ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤHi! my name is jake ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤ(Visual design student, and aspiring illustrator/animator)
 ⭑.ᐟ C+H !! You are free to interact; at first I am quite shy but I gain confidence depending on your comfort. !!
 
